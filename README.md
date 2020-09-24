@@ -1,3 +1,3 @@
 # Afuko57.github.io
-Atita อทิตา 
-![image](hqdefault.png)
+Atita Somprasong อทิตา สมประสงค์
+![image](01.jpg)
